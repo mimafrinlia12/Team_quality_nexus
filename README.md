@@ -1,4 +1,4 @@
-#Team Qality nexus
+
 
 👥 Team Members
 
